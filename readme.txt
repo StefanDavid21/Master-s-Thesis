@@ -1,1 +1,0 @@
-"Te pup ce zici"  
